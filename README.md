@@ -1,4 +1,2 @@
-#Day1
-On my first day ,first I reached Gurudwara Sahib and observe the shape of gurudwara sahib.We see the gurudwara sahib is very beautiful and i am suprised to know about that the shape of gurudwara sahib is similar to ship . The gurbani/ shabad kirtan recited by kirtani jatha.After recited the shabad kirtan
-I take tea.after taking tea I reached outside the auditorium and registered herslef.
+#Day1   On my first day ,first I reached Gurudwara Sahib at 8:30 and observe the shape of gurudwara sahib.We see the gurudwara sahib is very beautiful and i am suprised to know about that the shape of gurudwara sahib is similar to ship . The gurbani/ shabad kirtan recited by kirtani jatha.After recited the shabad kirtan.I take tea.After take tea I reached outside the auditorium and registered herslef.Then I entered in the auditorium.In the auditorium principal sir,HODs,chief guests and faculty members are present there.
 
