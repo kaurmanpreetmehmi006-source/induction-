@@ -9,4 +9,7 @@
 # list 3  
 # After take tea I reached outside the auditorium at10am to attend the inaugural ceremony and first I registered herslef.
 # Then I entered in the auditorium.In the auditorium principal sir,HODs,chief guests and faculty members are present there.
-
+# firstly Dr.Akshay Gidhar Sir introduce him and inspired us.
+# Dr.sehajpal Singh who was  principal of the college congratulate us and tell about the college.
+# Rajinder Garg who was guest pf the honour tell us about the trainig and placement and also motivated us .
+# Dr.Kulwinder Singh maan who was the head pf department also motivated us.
