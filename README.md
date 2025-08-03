@@ -8,5 +8,5 @@ The gurbani/ shabad kirtan recited by kirtani jatha.After recited the shabad kir
 Then I entered in the auditorium.In the auditorium principal sir,HODs,chief guests and faculty members are present there.
  firstly Dr.Akshay Gidhar Sir introduce him and inspired us.
  Dr.sehajpal Singh who was  principal of the college congratulate us and tell about the college.
- Rajinder Garg who was guest pf the honour tell us about the trainig and placement and also motivated us 
- Dr.Kulwinder Singh maan who was the head pf department also motivated us.
+ Rajinder Garg who was guest of the honour tell us about the trainig and placement and also motivated us 
+ Dr.Kulwinder Singh Maan who was the head of department also motivated us.
