@@ -13,3 +13,5 @@ Then I entered in the auditorium.In the auditorium principal sir,HODs,chief gues
 Then we explore the labs where we will do practicals.Our mentors tell us about the branch and also tell about the trainig and placement.They also introduce various clubs and motivated us to join the club and participate in various activities.
 # Day 2
 On day 2,I reached the college at 9:20. My room no.is 109.My first class started at 9:30 and in the first class our english proficiency test  started.After completed the english test,Our math proficiency test started.After that I enjoyed the break till 1:00.In the auditorium,Dr.Arashdeep Singh provided the knowledge about the food.Last session was given by causmic club and launch of induction activities.The knowledge about the induction activities was given by our seniors.Our seniors also entertained us.
+# Day 3
+On the day 3,I reached the college at 8:45.On this day firstly epert lecturer Dr.Jaswinder Singh  tell us some tricks and method to understand the science and mathematics. 
